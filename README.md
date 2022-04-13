@@ -1,4 +1,8 @@
-### Hi there 👋
+### Hi there, I am Dudu Torres 👋
+I am a brazilian :brazil: creative, father of 3 boys :boy:	:boy:	:boy:	, married to a vet :smiley_cat:	:dog:	:gorilla:	:lion:	, living in	Burlington, ON :canada:.
+
+I am currently a Visual Design Lead for the Learning & Development Team @ GitHub :octocat:.
+
 
 <!--
 **dudutorres/dudutorres** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
