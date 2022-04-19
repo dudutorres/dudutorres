@@ -1,4 +1,6 @@
-### Hi there, I am Dudu Torres 👋
+### 👋 Hi there, I am Dudu Torres. 
+[Instagram](https://instagram.com/dudutorres)  |  [LinkedIn](https://linkedin.com/in/dudutorres)  |  [Twitter](https://twitter.com/dudutorres)  |  [URLZ](https://urlz.com/dudutorres)
+
 I am a brazilian creative 🇧🇷, married to a vet 🐘, father of 3 boys 👦👦👦 and 2 dogs 🐕🐕, who recently moved from Rio de Janeiro to Burlington, Ontario 🇨🇦. It was the most difficult and bold decision we had to make in our lives, but totally worth it. We wanted to give our kids a life full of freedom, diversity, connection to nature 🌲 … and to give them the opportunity to become citizens of the world 🌐 (aside from trying to get our Canadian citizenship, I am also getting my Portuguese one). I lost many great opportunities in my life for having to deal with visas and work permits, so I want them to be able to become global citizens, without these hassles. We’ve become much stronger as a family.
 
 I have recently joined Github :octocat:, and before that I was a Creative Lead at SweetRush, one of the most respected companies in the training industry. I am joining the Learning & Development team as the Visual Design Lead and I am extremely excited to start collaborating with all of you, and to learn every single day.
