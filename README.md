@@ -13,6 +13,11 @@ Here are some recent pictures of our family:
 ![Screen Shot 2022-04-19 at 10 14 56 AM](https://user-images.githubusercontent.com/2192317/164024496-abf8f3d3-7110-4efc-9aa6-67dadcab4a0c.png)
 ![Screen Shot 2022-04-19 at 10 15 05 AM](https://user-images.githubusercontent.com/2192317/164024515-ec252261-7e4b-4ca1-b127-92dd8c17b130.png)
 
+And here is my home office setup:
+
+![Screen Shot 2022-04-19 at 5 52 42 PM](https://user-images.githubusercontent.com/2192317/164107993-16a0c531-9aa0-46c7-a81b-bd049bf67218.png)
+![Screen Shot 2022-04-19 at 5 52 54 PM](https://user-images.githubusercontent.com/2192317/164107999-9bc68443-4957-424e-9418-68007b3746f9.png)
+
 
 
 
